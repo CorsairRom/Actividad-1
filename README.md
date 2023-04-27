@@ -1,0 +1,1 @@
+## i don't know when start a difficult mode
